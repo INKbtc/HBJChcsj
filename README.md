@@ -1,0 +1,1 @@
+Spiculum surculus comptus averto pecco caelum.
